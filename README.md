@@ -5,7 +5,7 @@
 *"You can't stop change any more than you can stop the suns from setting."*
 
 :crescent_moon:  The phrase from Shmi told to Anakin Skywalker in Phantom Menace, Signifying introduces a theme what will be present in every movies in the Prequels.
-The setting sun is a recurring symbol of change, marking milestones in the story of Star wars saga.
+The setting sun is a recurring symbol of change, marking milestones in the story of Star wars saga. :film_strip:
 
 :earth_asia:	The world is changing faster than ever and creating exponentially more data, but in reality the data that generated is can be used less that 10% of all amount.
 
